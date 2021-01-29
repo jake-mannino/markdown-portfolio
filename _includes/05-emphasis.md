@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I like lots of underground music so **DJing** is something I enjoy doing. I also like to *ski* when I get the chance. 
